@@ -12,3 +12,5 @@ But I almost finish this small book through 30 days.
 That shows the gap between wish and reallity. 
 
 But I am happy and satisfy myself because I do not give up anyway. 
+
+![prayer](vbn/images/IMG_1618.jpg)
