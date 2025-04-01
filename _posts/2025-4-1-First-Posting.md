@@ -13,4 +13,4 @@ That shows the gap between wish and reallity.
 
 But I am happy and satisfy myself because I do not give up anyway. 
 
-![prayer](vbn/images/IMG_1618.jpg)
+![prayer](/images/IMG_1618.jpg)
